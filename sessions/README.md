@@ -1,1 +1,1 @@
-## Link with your whatsapp and put `SESSION_ID` in to settings.js [ **don't** ] upload here
+QUEENELISA;;;==QV0gURtUkdDB3Q4xESqt2czh1VFF2SzU1dop2UhR1a6VVOu92U21UMzYmMjQEVaFVeWp0bpwd=983003153329
